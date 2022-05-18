@@ -1,4 +1,4 @@
-Check it out in RAW               
+Check it out in raw              
                _,........_
                _.-'    ___    `-._
             ,-'      ,'   \       `.
